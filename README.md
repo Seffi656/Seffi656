@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Digital Marketing
 - 💞️ I’m looking to collaborate on Digital Marketing
 - 📫 How to reach me Digital Marketing Blogs
-- 😄 Pronouns:He/Him
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Digital Marketing is like magic
 
 <!---
